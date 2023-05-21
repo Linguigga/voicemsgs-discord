@@ -9,6 +9,7 @@ only works in dms, bc u can't send voice messages in guild channels
 U will not be able to listen to the voice msgs on mobile, I made a fucky wucky somewhere and really cba trying to fix it lol
 
 how to use:
+
 https://linguini-has-taken-a-shit.in-the.church/content/cdn/AtuRtsssRhHs.png
 
 https://linguini-has-taken-a-shit.in-the.church/content/cdn/iBygswWvGKHz.png
