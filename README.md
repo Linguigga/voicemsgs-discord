@@ -10,5 +10,7 @@ U will not be able to listen to the voice msgs on mobile, I made a fucky wucky s
 
 how to use:
 https://linguini-has-taken-a-shit.in-the.church/content/cdn/AtuRtsssRhHs.png
+
 https://linguini-has-taken-a-shit.in-the.church/content/cdn/iBygswWvGKHz.png
+
 https://linguini-has-taken-a-shit.in-the.church/content/cdn/zBdCGjUBLagu.png 
